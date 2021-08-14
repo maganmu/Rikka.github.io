@@ -1,6 +1,8 @@
-## 中文测试
+## 甘木Rikka
 
-青春是萤火绚丽的流动银河，灿烂却也极致短暂。 [editor on GitHub](https://github.com/maganmu/Rikka.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+青春是萤火绚丽的流动银河，灿烂却也极致短暂。 [genshin](https://ys.mihoyo.com/)
+最初的鸟儿是不会飞翔的，飞翔是它们勇敢跃入峡谷的奖励。
+
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
