@@ -2,7 +2,6 @@
 
 
 
-https://user-images.githubusercontent.com/88841655/129449155-c527d974-a083-42ab-ba09-ca5270bb66b6.mp4
 
 
 ## 青春是萤火绚丽的流动银河，灿烂却也极致短暂。
@@ -17,7 +16,9 @@ https://user-images.githubusercontent.com/88841655/129449155-c527d974-a083-42ab-
 
 2.不是所有的盛情款待，都有完美的落幕。
 
-3.我等必将复起，古木已发新枝4.在黎明到来之前，必须要有人稍微照亮黑暗。
+3.我等必将复起，古木已发新枝
+
+4.在黎明到来之前，必须要有人稍微照亮黑暗。
 
 5.风向是会转变的，终有一天会吹向更加光亮的地方。所以，带着我的祝福，
 活的更加从容一些吧。
@@ -68,7 +69,7 @@ https://user-images.githubusercontent.com/88841655/129449155-c527d974-a083-42ab-
 敌。或许也是为了更加接近与它无缘的天空吧。
 ```
 
-For more details see[原神genshin](https://ys.mihoyo.com/).
+For more details see [原神genshin](https://ys.mihoyo.com/).
 
 ### 内容语录
 
@@ -77,5 +78,7 @@ For more details see[原神genshin](https://ys.mihoyo.com/).
 Ⅱ![9c8e41b6e344cd468fe64c8b344030751628823389032](https://user-images.githubusercontent.com/88841655/129449118-4f647799-4809-4a8c-b7cf-c3c7b54cc2f4.jpeg)
 Ⅲ![385a0c5a67c7b998e7b7361bce6a27431627919450772](https://user-images.githubusercontent.com/88841655/129449123-552c4a2d-0334-4ab1-9bd6-c607f879193b.jpeg)
 Ⅳ![5fa3168164be303c](https://user-images.githubusercontent.com/88841655/129449127-ca958114-ca35-4a79-85f3-0c2770631635.jpg)![7eafce2174bac48e](https://user-images.githubusercontent.com/88841655/129449132-d395c524-a2f1-45d0-8374-353cd163e9a9.jpg)
+Ⅴ![Screenshot_20210814_174944_tv danmaku bili](https://user-images.githubusercontent.com/88841655/129449579-ff36f33e-4d52-4626-864b-74c01ad788d8.jpg)
+Ⅵ
 
 
