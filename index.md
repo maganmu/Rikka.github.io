@@ -1,12 +1,13 @@
 ## 甘木Rikka
 
-青春是萤火绚丽的流动银河，灿烂却也极致短暂。 [genshin](https://ys.mihoyo.com/)
+青春是萤火绚丽的流动银河，灿烂却也极致短暂。
+[genshin](https://ys.mihoyo.com/)
 最初的鸟儿是不会飞翔的，飞翔是它们勇敢跃入峡谷的奖励。
-
+人间归离复归离开，借一浮生逃浮生。
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Markdown
+### 人物语录
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
@@ -30,7 +31,7 @@ Syntax highlighted code block
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
-### Jekyll Themes
+### 内容语录
 
 Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/maganmu/Rikka.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
