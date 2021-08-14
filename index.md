@@ -1,11 +1,10 @@
-## 甘木Rikka
+## Rikka YYDS!!! 
 
-青春是萤火绚丽的流动银河，灿烂却也极致短暂。
-[genshin](https://ys.mihoyo.com/)
-最初的鸟儿是不会飞翔的，飞翔是它们勇敢跃入峡谷的奖励。
-人间归离复归离开，借一浮生逃浮生。
+## 青春是萤火绚丽的流动银河，灿烂却也极致短暂。
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+以下内容皆来自[原神genshin](https://ys.mihoyo.com/)
+
+ [作者bilibili主页](https://space.bilibili.com/37660277)
 
 ### 人物语录
 
