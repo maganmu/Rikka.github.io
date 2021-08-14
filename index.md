@@ -1,10 +1,14 @@
-## Rikka YYDS!!! 
+## Rikka YYDS!!! ![cceb87b06ebf4afee47165dd27ac7071](https://user-images.githubusercontent.com/88841655/129449154-caf010dd-24eb-445a-b6f6-2c6abab36ad7.jpg)
+
+
+
+https://user-images.githubusercontent.com/88841655/129449155-c527d974-a083-42ab-ba09-ca5270bb66b6.mp4
+
 
 ## 青春是萤火绚丽的流动银河，灿烂却也极致短暂。
+![60b2db35b38c6d9a11b7b1fa7443a70a](https://user-images.githubusercontent.com/88841655/129449067-5701c8f5-b9f9-4a81-95ac-326f00ac2fca.jpg)
 
-以下内容皆来自[原神genshin](https://ys.mihoyo.com/)
-
- [作者bilibili主页](https://space.bilibili.com/37660277)
+—————— [马甘木的bilibili主页](https://space.bilibili.com/37660277)
 
 ### 人物语录
 
@@ -15,17 +19,21 @@
 
 3.我等必将复起，古木已发新枝4.在黎明到来之前，必须要有人稍微照亮黑暗。
 
-5.风向是会转变的，终有一天会吹向更加光亮的地方。所以，带着我的祝福，活的更加从容一些吧。
+5.风向是会转变的，终有一天会吹向更加光亮的地方。所以，带着我的祝福，
+活的更加从容一些吧。
 
 6.年年今日，灯明如昼。原火不灭，愿人依旧。                             
 
-7.“孩子，就是和嫣朵拉一样的新生命。孩子的任务是长大。居然是长大吗？我还以为是好好看看这个世界呢” 
+7.“孩子，就是和嫣朵拉一样的新生命。孩子的任务是长大。居然是长大吗？
+我还以为是好好看看这个世界呢” 
 
-8.变革的时机已经到来，维持了千年的秩序即将被改写。 只要不失去你的崇高，整个世界都会为你敞开。 
+8.变革的时机已经到来，维持了千年的秩序即将被改写。 只要不失去你的崇
+高，整个世界都会为你敞开。 
 
 9.“罪人的后裔，必须独自挣脱复仇的枷锁。”
 
-10.谁也没有见过风，更别说你和我了；谁也没有见过爱情，直到有花束拋向自己。
+10.谁也没有见过风，更别说你和我了；谁也没有见过爱情，直到有花束拋向
+自己。
 
 11.天动万象，山海化形，荒地生星，璨如烈阳。
 
@@ -39,27 +47,35 @@
 
 16.不管当下的境遇如何，提瓦特大陆的星空永远会有你的位置。
  
-17.我想要和你们一起旅行。去看看生命的小溪到海之前，会经历的夹岸繁花与天际云霞。
+17.我想要和你们一起旅行。去看看生命的小溪到海之前，会经历的夹岸繁花
+与天际云霞。
 
 18.腾龙飞鳞，虽寿比山岳，终为土灰。
 
 19.除了时间，什么也没留下，风带来故事的种子，时间使其发芽。
 
-21.人类在未知面前凝为一体，只要活着，人终会抵达所有可见之地。我的时间已不太多，属于我的那阵风尚未来到。但在我们之中，或者，在你们的子女，学生，朋友之中，必有一人，能够抵达。
+21.人类在未知面前凝为一体，只要活着，人终会抵达所有可见之地。我的时
+间已不太多，属于我的那阵风尚未来到。但在我们之中，或者，在你们的子女
+，学生，朋友之中，必有一人，能够抵达。
 
-22.温迪:“当你重新踏上旅途之后，一定要记得旅途本身的意义。提瓦特的飞鸟、诗和城邦，女皇、愚人和怪物……都是你旅途的一部分。终点并不意味着一切，在抵达终点之前，用你的眼睛，多多观察这个世界吧……”
+22.温迪:“当你重新踏上旅途之后，一定要记得旅途本身的意义。提瓦特的飞
+鸟、诗和城邦，女皇、愚人和怪物……都是你旅途的一部分。终点并不意味着一
+切，在抵达终点之前，用你的眼睛，多多观察这个世界吧……”
 
 23.最初的鸟儿是不会飞翔的，飞翔是它们勇敢跃入峡谷的奖励。
 
-24.无相之岩将外壳筑成高耸的岩柱，将自己抬升至高处，或许不仅是为了应敌。或许也是为了更加接近与它无缘的天空吧。
+24.无相之岩将外壳筑成高耸的岩柱，将自己抬升至高处，或许不仅是为了应
+敌。或许也是为了更加接近与它无缘的天空吧。
 ```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+For more details see[原神genshin](https://ys.mihoyo.com/).
 
 ### 内容语录
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/maganmu/Rikka.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+### 壁纸推荐
+Ⅰ![QQ图片20210201222211](https://user-images.githubusercontent.com/88841655/129449091-b2df2f96-3de0-4052-887d-b3ec510678ca.jpg)
+Ⅱ![9c8e41b6e344cd468fe64c8b344030751628823389032](https://user-images.githubusercontent.com/88841655/129449118-4f647799-4809-4a8c-b7cf-c3c7b54cc2f4.jpeg)
+Ⅲ![385a0c5a67c7b998e7b7361bce6a27431627919450772](https://user-images.githubusercontent.com/88841655/129449123-552c4a2d-0334-4ab1-9bd6-c607f879193b.jpeg)
+Ⅳ![5fa3168164be303c](https://user-images.githubusercontent.com/88841655/129449127-ca958114-ca35-4a79-85f3-0c2770631635.jpg)![7eafce2174bac48e](https://user-images.githubusercontent.com/88841655/129449132-d395c524-a2f1-45d0-8374-353cd163e9a9.jpg)
 
-### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
