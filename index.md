@@ -1,49 +1,43 @@
 ![_-1227831042_72747115a0ba5178782448912951afe6_162](https://user-images.githubusercontent.com/88841655/129450093-ef02e650-0899-4a4c-8168-bf17c41f2220.jpg)
 -------------------------------------------------------------
 
-## Rikka YYDS!!! ![cceb87b06ebf4afee47165dd27ac7071](https://user-images.githubusercontent.com/88841655/129449154-caf010dd-24eb-445a-b6f6-2c6abab36ad7.jpg)
+# 七言凝歌醉红尘，宫眉细细倩影长。智绝情散溢满伤，音容笑干泪湿裳。
+  
+### 是的，人终其一生都是中二病患者。
+  
+### 邪王真眼是最强的。
+---
+#### Rikka,YYDS!!! ![cceb87b06ebf4afee47165dd27ac7071](https://user-images.githubusercontent.com/88841655/129449154-caf010dd-24eb-445a-b6f6-2c6abab36ad7.jpg)
+爆裂現実!砕けろ精神!Banishiment this world !「爆裂吧 现实！ 粉碎吧 精神！Banishiment this 
+world !」
 
+我が名は暗焔の魔法使い,漆黒の炎に食い尽くされよ!「吾之名为暗焰魔法使，被漆黑烈焰吞噬殆尽吧！」
 
+如果「我」当时抓住的不是硬币而是勇者的手话...
 
+[「中二病でも恋がしたい!」](http://www.anime-chu-2.com/)
+---
 
-
-## 青春是萤火绚丽的流动银河，灿烂却也极致短暂。
-![60b2db35b38c6d9a11b7b1fa7443a70a](https://user-images.githubusercontent.com/88841655/129449067-5701c8f5-b9f9-4a81-95ac-326f00ac2fca.jpg)
-
-—————— [马甘木的bilibili主页](https://space.bilibili.com/37660277)
-
-## 内容推荐（梗）
-
+![storyHd](https://user-images.githubusercontent.com/88841655/129479148-6e45926c-da67-4c44-9f0d-a3f8b47d328b.png)
+![story](https://user-images.githubusercontent.com/88841655/129479154-481c5f67-2bc3-4b9b-998f-642cbdb0a392.png)
+---
+![introduction](https://user-images.githubusercontent.com/88841655/129479168-7a65bf96-2b7d-445c-a4f5-3d0d48a8b95b.png)
+---
+# 内容推荐（梗）
 ## ①
 ![7D4D2A9F602E88BB51B2088A76CD3978](https://user-images.githubusercontent.com/88841655/129449927-916565f2-aa65-49ab-8bcc-ab58038c7ec7.jpg)
---------------------------------------------------------------------------------------------
 
 ## ②
-![1189FBDD9A874CFFEEC5EA28A42476CE](https://user-images.githubusercontent.com/88841655/129449943-4e023b1e-ab5e-4a3b-bb53-e850299eeb1f.jpg)
---------------------------------------------------------------------------------------------
-
-### ③
 ![038bf35301b16b74580b07f9c6ce5e316924447a_raw](https://user-images.githubusercontent.com/88841655/129449995-7e67f25b-b0e0-4700-849d-0c134a1a9c20.jpg)
 ![0cf60670a4a88c145e0d679dd7ab8707d8670638_raw](https://user-images.githubusercontent.com/88841655/129449996-887c989e-bc40-4907-a730-1971fe3144f9.jpg)
---------------------------------------------------------------------------------------------
+
+## ③
+![6d40832dd29810f6](https://user-images.githubusercontent.com/88841655/129450000-db743450-260f-4d0f-a580-fa5a893cc5ea.jpg)
 
 ## ④
-![6d40832dd29810f6](https://user-images.githubusercontent.com/88841655/129450000-db743450-260f-4d0f-a580-fa5a893cc5ea.jpg)
---------------------------------------------------------------------------------------------
-
-## ⑤
-![510d4668d47378a547959b904279abfe](https://user-images.githubusercontent.com/88841655/129450005-6617f5d4-dd35-41f0-9ee5-e99fe463cda0.jpg)
---------------------------------------------------------------------------------------------
-
-## ⑥
 ![2d0b5baab55455887e3badbb9d174e7b](https://user-images.githubusercontent.com/88841655/129450011-9c66dce1-a5b1-44ca-86e0-7546707459ee.jpg)
---------------------------------------------------------------------------------------------
 
-## ⑦
-![73ace1d9cbd96ef5](https://user-images.githubusercontent.com/88841655/129450015-76dba119-59dc-4eb7-9d3c-ad58e008eb99.jpg)
---------------------------------------------------------------------------------------------
-## 人物语录
-
+# genshin语录
 ```markdown
 1.人间归离复归离，借一浮生逃浮生。
 
@@ -104,14 +98,19 @@
 
 For more details see [原神genshin](https://ys.mihoyo.com/).
 
-## 内容语录
+# 壁纸推荐
+Ⅰ![85c4b047d9f70995e48d94f2e153667e jpg](https://user-images.githubusercontent.com/88841655/129479289-36719555-bbb7-4568-8851-ca5046e942d3.JPG)
 
-## 壁纸推荐
-Ⅰ![QQ图片20210201222211](https://user-images.githubusercontent.com/88841655/129449091-b2df2f96-3de0-4052-887d-b3ec510678ca.jpg)
 Ⅱ![9c8e41b6e344cd468fe64c8b344030751628823389032](https://user-images.githubusercontent.com/88841655/129449118-4f647799-4809-4a8c-b7cf-c3c7b54cc2f4.jpeg)
-Ⅲ![385a0c5a67c7b998e7b7361bce6a27431627919450772](https://user-images.githubusercontent.com/88841655/129449123-552c4a2d-0334-4ab1-9bd6-c607f879193b.jpeg)
-Ⅳ![5fa3168164be303c](https://user-images.githubusercontent.com/88841655/129449127-ca958114-ca35-4a79-85f3-0c2770631635.jpg)![7eafce2174bac48e](https://user-images.githubusercontent.com/88841655/129449132-d395c524-a2f1-45d0-8374-353cd163e9a9.jpg)
-Ⅴ![Screenshot_20210814_174944_tv danmaku bili](https://user-images.githubusercontent.com/88841655/129449579-ff36f33e-4d52-4626-864b-74c01ad788d8.jpg)
 
+Ⅲ!![04dbd316a2b3bb25f386bd74813af450 jpg](https://user-images.githubusercontent.com/88841655/129479319-ec4200e5-7bd5-4b34-9f3e-53153176d6bc.JPG)
+
+Ⅳ![5fa3168164be303c](https://user-images.githubusercontent.com/88841655/129449127-ca958114-ca35-4a79-85f3-0c2770631635.jpg)![7eafce2174bac48e](https://user-images.githubusercontent.com/88841655/129449132-d395c524-a2f1-45d0-8374-353cd163e9a9.jpg)
+
+Ⅴ![9da5d2fb66c9a55f6691283172545c14 jpg](https://user-images.githubusercontent.com/88841655/129479320-ab4c0519-bae8-485e-811d-435814d99ea5.JPG)
+
+Ⅵ![80c8e04f59ac3bceca71a0e1cdf8f3bf jpg](https://user-images.githubusercontent.com/88841655/129479335-5dc7f750-cc5c-4839-9c06-12c548ae2431.JPG)
+
+Ⅶ![540333df7f52dbe57ceed6b7d6b726db jpg](https://user-images.githubusercontent.com/88841655/129479338-0d209c14-cf24-44a7-a445-2b8e24b2798c.JPG)
 
 
