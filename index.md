@@ -15,14 +15,12 @@ world !」
 
 如果「我」当时抓住的不是硬币而是勇者的手话...
 
-[「中二病でも恋がしたい!」](http://www.anime-chu-2.com/)
----
+![WK01}@E1(BX)YL9LL9P@T8S](https://user-images.githubusercontent.com/88841655/129479564-97d3ae84-acf7-41db-9167-214227b639c8.png)
 
+[「中二病でも恋がしたい!」](http://www.anime-chu-2.com/)
 ![storyHd](https://user-images.githubusercontent.com/88841655/129479148-6e45926c-da67-4c44-9f0d-a3f8b47d328b.png)
 ![story](https://user-images.githubusercontent.com/88841655/129479154-481c5f67-2bc3-4b9b-998f-642cbdb0a392.png)
----
 ![introduction](https://user-images.githubusercontent.com/88841655/129479168-7a65bf96-2b7d-445c-a4f5-3d0d48a8b95b.png)
----
 # 内容推荐（梗）
 ## ①
 ![7D4D2A9F602E88BB51B2088A76CD3978](https://user-images.githubusercontent.com/88841655/129449927-916565f2-aa65-49ab-8bcc-ab58038c7ec7.jpg)
@@ -95,22 +93,15 @@ world !」
 24.无相之岩将外壳筑成高耸的岩柱，将自己抬升至高处，或许不仅是为了应
 敌。或许也是为了更加接近与它无缘的天空吧。
 ```
-
 For more details see [原神genshin](https://ys.mihoyo.com/).
 
 # 壁纸推荐
-Ⅰ![85c4b047d9f70995e48d94f2e153667e jpg](https://user-images.githubusercontent.com/88841655/129479289-36719555-bbb7-4568-8851-ca5046e942d3.JPG)
+Ⅰ![85c4b047d9f70995e48d94f2e153667e jpg](https://user-images.githubusercontent.com/88841655/129479289-36719555-bbb7-4568-8851-ca5046e942d3.JPG)![9da5d2fb66c9a55f6691283172545c14 jpg](https://user-images.githubusercontent.com/88841655/129479320-ab4c0519-bae8-485e-811d-435814d99ea5.JPG)
 
-Ⅱ![9c8e41b6e344cd468fe64c8b344030751628823389032](https://user-images.githubusercontent.com/88841655/129449118-4f647799-4809-4a8c-b7cf-c3c7b54cc2f4.jpeg)
+Ⅱ![80c8e04f59ac3bceca71a0e1cdf8f3bf jpg](https://user-images.githubusercontent.com/88841655/129479335-5dc7f750-cc5c-4839-9c06-12c548ae2431.JPG)![540333df7f52dbe57ceed6b7d6b726db jpg](https://user-images.githubusercontent.com/88841655/129479338-0d209c14-cf24-44a7-a445-2b8e24b2798c.JPG)
 
-Ⅲ!![04dbd316a2b3bb25f386bd74813af450 jpg](https://user-images.githubusercontent.com/88841655/129479319-ec4200e5-7bd5-4b34-9f3e-53153176d6bc.JPG)
+Ⅲ![9c8e41b6e344cd468fe64c8b344030751628823389032](https://user-images.githubusercontent.com/88841655/129449118-4f647799-4809-4a8c-b7cf-c3c7b54cc2f4.jpeg)![e57b3f6940f95e26efc9cfe92d2b1cf7 jpg](https://user-images.githubusercontent.com/88841655/129479539-a3b71066-6857-4665-876f-5c56b18b9cb7.JPG)
 
-Ⅳ![5fa3168164be303c](https://user-images.githubusercontent.com/88841655/129449127-ca958114-ca35-4a79-85f3-0c2770631635.jpg)![7eafce2174bac48e](https://user-images.githubusercontent.com/88841655/129449132-d395c524-a2f1-45d0-8374-353cd163e9a9.jpg)
+Ⅳ!![04dbd316a2b3bb25f386bd74813af450 jpg](https://user-images.githubusercontent.com/88841655/129479319-ec4200e5-7bd5-4b34-9f3e-53153176d6bc.JPG)
 
-Ⅴ![9da5d2fb66c9a55f6691283172545c14 jpg](https://user-images.githubusercontent.com/88841655/129479320-ab4c0519-bae8-485e-811d-435814d99ea5.JPG)
-
-Ⅵ![80c8e04f59ac3bceca71a0e1cdf8f3bf jpg](https://user-images.githubusercontent.com/88841655/129479335-5dc7f750-cc5c-4839-9c06-12c548ae2431.JPG)
-
-Ⅶ![540333df7f52dbe57ceed6b7d6b726db jpg](https://user-images.githubusercontent.com/88841655/129479338-0d209c14-cf24-44a7-a445-2b8e24b2798c.JPG)
-
-
+Ⅴ![5fa3168164be303c](https://user-images.githubusercontent.com/88841655/129449127-ca958114-ca35-4a79-85f3-0c2770631635.jpg)![7eafce2174bac48e](https://user-images.githubusercontent.com/88841655/129449132-d395c524-a2f1-45d0-8374-353cd163e9a9.jpg)
