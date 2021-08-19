@@ -1,10 +1,9 @@
 ![_-1227831042_72747115a0ba5178782448912951afe6_162](https://user-images.githubusercontent.com/88841655/129450093-ef02e650-0899-4a4c-8168-bf17c41f2220.jpg)
 -------------------------------------------------------------
-
-# 七言凝歌醉红尘，
-# 宫眉细细倩影长。
-# 智绝情散溢满伤，
-# 音容笑干泪湿裳。
+七言凝歌醉红尘，
+宫眉细细倩影长。
+智绝情散溢满伤，
+音容笑干泪湿裳。
   
 ### 是的，人终其一生都是中二病患者。
   
@@ -26,7 +25,7 @@ world !」
 ![introduction](https://user-images.githubusercontent.com/88841655/129479168-7a65bf96-2b7d-445c-a4f5-3d0d48a8b95b.png)
 # 内容推荐（梗）
 ## ①
-![7D4D2A9F602E88BB51B2088A76CD3978](https://user-images.githubusercontent.com/88841655/129449927-916565f2-aa65-49ab-8bcc-ab58038c7ec7.jpg)
+<不存在>
 
 ## ②
 ![038bf35301b16b74580b07f9c6ce5e316924447a_raw](https://user-images.githubusercontent.com/88841655/129449995-7e67f25b-b0e0-4700-849d-0c134a1a9c20.jpg)
@@ -99,12 +98,11 @@ world !」
 For more details see [原神genshin](https://ys.mihoyo.com/).
 
 # 壁纸推荐
-Ⅰ![85c4b047d9f70995e48d94f2e153667e jpg](https://user-images.githubusercontent.com/88841655/129479289-36719555-bbb7-4568-8851-ca5046e942d3.JPG)![9da5d2fb66c9a55f6691283172545c14 jpg](https://user-images.githubusercontent.com/88841655/129479320-ab4c0519-bae8-485e-811d-435814d99ea5.JPG)
+Ⅰ<不存在>
 
-Ⅱ![80c8e04f59ac3bceca71a0e1cdf8f3bf jpg](https://user-images.githubusercontent.com/88841655/129479335-5dc7f750-cc5c-4839-9c06-12c548ae2431.JPG)![540333df7f52dbe57ceed6b7d6b726db jpg](https://user-images.githubusercontent.com/88841655/129479338-0d209c14-cf24-44a7-a445-2b8e24b2798c.JPG)
+Ⅱ<不存在>
 
-Ⅲ![04dbd316a2b3bb25f386bd74813af450 jpg](https://user-images.githubusercontent.com/88841655/129479319-ec4200e5-7bd5-4b34-9f3e-53153176d6bc.JPG)
-![e57b3f6940f95e26efc9cfe92d2b1cf7 jpg](https://user-images.githubusercontent.com/88841655/129479539-a3b71066-6857-4665-876f-5c56b18b9cb7.JPG)
+Ⅲ<不存在>
 
 Ⅳ![9c8e41b6e344cd468fe64c8b344030751628823389032](https://user-images.githubusercontent.com/88841655/129449118-4f647799-4809-4a8c-b7cf-c3c7b54cc2f4.jpeg)
 
