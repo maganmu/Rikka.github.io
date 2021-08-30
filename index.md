@@ -23,21 +23,9 @@ world !」
 ![storyHd](https://user-images.githubusercontent.com/88841655/129479148-6e45926c-da67-4c44-9f0d-a3f8b47d328b.png)
 ![story](https://user-images.githubusercontent.com/88841655/129479154-481c5f67-2bc3-4b9b-998f-642cbdb0a392.png)
 ![introduction](https://user-images.githubusercontent.com/88841655/129479168-7a65bf96-2b7d-445c-a4f5-3d0d48a8b95b.png)
-# 内容推荐（梗）
-## ①
-<不存在>
-
-## ②
-![038bf35301b16b74580b07f9c6ce5e316924447a_raw](https://user-images.githubusercontent.com/88841655/129449995-7e67f25b-b0e0-4700-849d-0c134a1a9c20.jpg)
-![0cf60670a4a88c145e0d679dd7ab8707d8670638_raw](https://user-images.githubusercontent.com/88841655/129449996-887c989e-bc40-4907-a730-1971fe3144f9.jpg)
-
-## ③
-![6d40832dd29810f6](https://user-images.githubusercontent.com/88841655/129450000-db743450-260f-4d0f-a580-fa5a893cc5ea.jpg)
-
-## ④
-![2d0b5baab55455887e3badbb9d174e7b](https://user-images.githubusercontent.com/88841655/129450011-9c66dce1-a5b1-44ca-86e0-7546707459ee.jpg)
 
 # genshin语录
+
 ```markdown
 1.人间归离复归离，借一浮生逃浮生。
 
@@ -97,13 +85,3 @@ world !」
 ```
 For more details see [原神genshin](https://ys.mihoyo.com/).
 
-# 壁纸推荐
-Ⅰ<不存在>
-
-Ⅱ<不存在>
-
-Ⅲ<不存在>
-
-Ⅳ![9c8e41b6e344cd468fe64c8b344030751628823389032](https://user-images.githubusercontent.com/88841655/129449118-4f647799-4809-4a8c-b7cf-c3c7b54cc2f4.jpeg)
-
-Ⅴ![5fa3168164be303c](https://user-images.githubusercontent.com/88841655/129449127-ca958114-ca35-4a79-85f3-0c2770631635.jpg)![7eafce2174bac48e](https://user-images.githubusercontent.com/88841655/129449132-d395c524-a2f1-45d0-8374-353cd163e9a9.jpg)
