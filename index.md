@@ -1,5 +1,7 @@
 <head>
-    <link rel="shortcut icon" type="image/x-icon" href="/R.ico?">
+    <title>Index</title>
+    <!--浏览器标题栏加入图标-->
+    <link rel="Shortcut Icon" href="~/Images/R.ico" type="image/R-icon" />
 </head>
 
 ![_-1227831042_72747115a0ba5178782448912951afe6_162](https://user-images.githubusercontent.com/88841655/129450093-ef02e650-0899-4a4c-8168-bf17c41f2220.jpg)
